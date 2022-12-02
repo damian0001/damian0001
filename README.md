@@ -1,5 +1,6 @@
 ### Hi there 👋
 - 😄 Pronouns: Nick/Ger
+
 Wkurza Cię to, że Twoi koledzy mają już dziewczyny, a Ty jeszcze nie? A może po prostu masz dość bycia samotnym?
 
 Mnie kiedyś nie dawało to spokoju. Zastanawiałem się ciągle czy ze mną jest coś nie tak, dlaczego inni mają dziewczyny, a ja nie. W pewnym momencie miałem dość czekania na cud, zacząłem wtedy aktywnie poszukiwać dziewczyny: zagadywać kobiety w ciągu dnia, chodzić do klubów, na imprezy itd.
