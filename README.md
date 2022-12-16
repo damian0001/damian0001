@@ -16,4 +16,5 @@ Co zrobić?
 -Zabrać ją do Kościoła i pamiętać że Jezus Chrystus nakazał zachować czystość małżeńską i pomaga w iloczynie wektorowym (zobacz jak https://www.youtube.com/watch?v=ikgxgyINbhQ)
 
 Link do strony: https://damian0001.github.io
+Link do repozytorium: https://github.com/jozhang97/DETA
 
