@@ -17,4 +17,5 @@ Co zrobić?
 
 Link do strony: https://damian0001.github.io
 Link do repozytorium: https://github.com/jozhang97/DETA
+Link do artykułu: https://paperswithcode.com/paper/nms-strikes-back
 
